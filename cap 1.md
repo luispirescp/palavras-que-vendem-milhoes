@@ -1,3 +1,4 @@
+OK - 
 Prefácio
 “No mundo moderno dos negócios é inútil ser um pensador criativo e original, a
 menos que você também saiba vender o que cria”.
